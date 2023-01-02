@@ -1,0 +1,1 @@
+## WP West Coast Waste Theme
